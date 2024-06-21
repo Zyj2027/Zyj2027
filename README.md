@@ -1,4 +1,4 @@
-<img align="right" src="https://count.getloli.com/get/@:Minori-ty?theme=rule34">
+
 
 ## 重邮软工人—2027届
 
